@@ -32,7 +32,7 @@ I am passionate about sharing industry insights and elevating the next generatio
 ---
 
 ### 📫 Let's Connect
-- **LinkedIn:** [linkedin.com/in/mundadaoshin](https://linkedin.com/in/mundadaoshin)
+- **LinkedIn:** [linkedin.com/in/oshm](https://linkedin.com/in/oshm)
 - **Writing:** [HackerNoon Profile](https://hackernoon.com/u/oshinmundada)
 - **Mentorship:** [Book a session with me](https://mentorcruise.com/mentor/oshinmundada/)
 
